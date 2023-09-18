@@ -1,2 +1,2 @@
 Ronaldete na veia 7 ❤
-![] (https://i.gifer.com/OKUa.gif)
+-![](https://i.gifer.com/OKUa.gif)
